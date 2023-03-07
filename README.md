@@ -1,1 +1,1 @@
-# Club-de-Programaci-n-Competitiva-ITLag
+# Club-de-Programacion-Competitiva-ITLag
